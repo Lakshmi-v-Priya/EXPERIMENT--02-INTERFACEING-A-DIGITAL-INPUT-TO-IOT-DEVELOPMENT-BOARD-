@@ -1,5 +1,3 @@
-![WhatsApp Image 2025-03-12 at 11 12 13_18c194e0](https://github.com/user-attachments/assets/a622eecb-7d18-4794-8953-d73a7c15d50a)###  DATE: 12.03.2025
-
 ###  NAME: Lakshmi Priya .V
 ###  ROLL NO : 212223220049
 ###  DEPARTMENT: B.Tech(IT)
